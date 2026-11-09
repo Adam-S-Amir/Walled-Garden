@@ -1,1 +1,1 @@
-https://github.com/Adam s amir/Walled-Garden/wiki/
+https://github.com/Adam-S-Amir/Walled-Garden/wiki/
